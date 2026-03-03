@@ -1,0 +1,1 @@
+# perolehan-pintar
